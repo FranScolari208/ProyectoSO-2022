@@ -1,1 +1,0 @@
-# ProyectoSO-2022
